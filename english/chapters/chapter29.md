@@ -23,7 +23,7 @@ And beside him were a dozen others wearing identical clothing.
 They were like a group of programmed ants, mechanically using tools in their hands to clean grime from the walls. No conversation, no eye contact. Each person had a thick black data cable plugged into the back of their head, connected to rails on the ceiling.
 
 Lin Yi instinctively reached for the back of his neck.
-There was a cold metal socket, with an identical data cable deeply inserted into his spine, transmitting faint electrical currents with the data flow.
+There was a cold metal socket, with a data cable deeply inserted into his spine. In an instant, he felt an extremely strong sense of disconnection. This cold sensation of a tube inserted into the back of his neck was somehow more "real" than any pain he had felt in the previous instances—so real it was as if this tube was also plugged into his physical body in the real world.
 
 【Warning: Unnecessary movement detected. Please work immediately.】
 【Assimilation Rate: 95%】

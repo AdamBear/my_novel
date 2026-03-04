@@ -190,6 +190,8 @@ Lin Yi's lips curved slightly in the darkness.
 
 An expert.
 
+But for some reason, in this darkness filled with the smell of formalin, this cold female voice gave him an extremely absurd sense of familiarity. As if in a rainy night long ago, in a similarly desperate hospital corridor, he had heard a similar voice.
+
 This instance just got interesting.
 
 -----------------------------------------

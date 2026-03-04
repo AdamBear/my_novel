@@ -26,15 +26,19 @@ Lin Yi's eyes went wide. He rubbed his fingers hard on the dusty desktop. The fi
 
 His shock quickly turned to excitement. As an experienced gamer who had played countless games, he had tried all the big-name titles and the best VR equipment. But nothing had ever been this realistic.
 
-"'Infinite Trial'... I'm so glad I got that beta test invite!"
-
-Lin Yi talked to himself excitedly. He remembered that ten minutes ago, he was in his comfortable bedroom. He had put on that black helmet with no brand name and started this mysterious game.
-
-No long loading bar. No awkward cutscenes. He opened his eyes, and boom - perfect seamless transfer.
-
 "They even have smell simulation? This moldy smell, this rusty smell..." Lin Yi took two deep breaths of the terrible air like a weirdo, but looked totally happy. "This must need a million-dollar physics engine to calculate, right?"
 
-He stood up and looked around.
+"'Infinite Trial'... I'm so glad I got that beta test invite!"
+
+Lin Yi talked to himself excitedly.
+
+He remembered that ten minutes ago, he was in his comfortable bedroom. He had put on that black helmet with no brand name and started this mysterious game. No long loading bar. No awkward cutscenes. He opened his eyes, and boom - perfect seamless transfer.
+
+Wait, something's off. His memory seemed a bit fuzzy. Images of a hospital he knew very well suddenly flashed through Lin Yi's mind, along with various monitoring equipment in an ICU room, and the endless rain outside the hospital.
+
+Hold on, did he really win this VR game beta test? Lin Yi suddenly felt dizzy. He remembered signing a confidentiality agreement with an official seal for game testing, and an "Infinite Trial" beta test liability waiver that came with a 50,000 yuan "settlement fee." Finally, he remembered lying down in a cold chamber filled with gel. His memory seemed scrambled. Maybe he'd been staying up too late playing games recently. Whatever, let's just see what this game is about first.
+
+Lin Yi stood up and looked around.
 
 This was a typical abandoned classroom. The door sign hung crooked on the frame, reading "Class 2, Grade 3." Desks and chairs were scattered everywhere. The blackboard had half-finished math formulas on it. Chalk dust covered the floor, as if the teacher had been writing when something happened and was dragged away, never to return.
 
@@ -52,18 +56,29 @@ He skillfully raised his right hand, drew a circle in the air, then swung it dow
 
 With a soft electronic sound, a semi-transparent light blue holographic interface opened in front of him, floating in the air.
 
+
 【Infinite Trial - Tutorial Mission】
+
 ------------------------------
+
 Current Mission: Abandoned School
+
 Difficulty Level: ★☆☆☆☆
+
 Victory Condition: Survive 30 minutes
+
 Current Countdown: 29:45
 
 [Character Status]
+
 Health: 100/100
+
 Stamina: 100/100
+
 Mental Points: ???
+
 Equipment: None
+
 
 Lin Yi carefully looked at the interface, a confident smile forming on his lips.
 
@@ -144,6 +159,9 @@ He glanced at the countdown.
 He clenched his fists and confidently whispered to the darkness deep in the hallway:
 
 "This kind of tutorial level, I can speed-run it in 10 minutes."
+
+
+--------------------
 
 *[Observation Record - Sample 17]*
 
