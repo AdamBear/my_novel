@@ -48,7 +48,7 @@ In extreme pain, her lips trembled, suddenly murmuring Lin Yi's name.
 
 Lin Yi's hands pressing her paused slightly.
 
-"Principal... three hundred... compound interest..." Su Liang's brow twisted painfully together, as if having the world's most terrible nightmare, grinding her teeth as she muttered, "You owe me... 450 points... don't you dare die..."
+"Principal... three hundred... compound interest..." Su Liang's brow twisted painfully together, as if having the world's most terrible nightmare, grinding her teeth as she muttered, "I owe you... 450 points... Lin Yi, don't you dare die..."
 
 Hearing this, Old Ghost standing to the side froze, looking bewildered. "What three hundred, four hundred? Is she delirious from fever?"
 

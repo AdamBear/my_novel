@@ -106,7 +106,7 @@ This feeling was like two lone wolves frozen in the Ice Age who, upon awakening,
 
 "Su Liang, you said then you don't owe favors, you only calculate interest."
 
-Lin Yi rolled down his sleeve, body leaning back against the chair, gaze burning as he stared at her. "So in 'Lightless Hospital's' transit station, you took advantage of the situation, forcing me to sign that IOU for 300 points with 50% compound interest."
+Lin Yi rolled down his sleeve, body leaning back against the chair, gaze burning as he stared at her. "So in 'Lightless Hospital's' transit station, I took advantage of the situation, forcing you to sign that IOU for 300 points with 50% compound interest, and you said 'even loan sharks aren't as black-hearted as me.'"
 
 "So, creditor, how should we settle this account now?"
 

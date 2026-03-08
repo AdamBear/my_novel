@@ -66,7 +66,7 @@ But his reason still stuck on a fatal paradox.
 
 "The logic doesn't work." Lin Yi reopened his eyes, gaze sharp as a knife staring at the boss. "If the outside world has passed fifty years, then what about me? My memory stops at nineteen years old. Even if the time passage you're talking about is real, why hasn't my body aged?"
 
-Lin Yi raised his hands, looking at the fresh scabs from wounds left in instances. "If I've passed fifty years, I should be a seventy-year-old man now, not a young person standing here discussing years with you."
+Lin Yi raised his hands, looking at the fresh scabs from wounds left during the processing factory breakout. "If I've passed fifty years, I should be a seventy-year-old man now, not a young person standing here discussing years with you."
 
 "Could it be time travel? Has Ark's technology reached the point of warping physical time?" Lin Yi pressed.
 

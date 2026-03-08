@@ -46,13 +46,13 @@ In this noisy silence, she actually "heard" Lin Yi's hoarse, exhausted yet sligh
 
 ## Section 3: Settlement
 
-"Cough..." Lin Yi looked at her, his lips pulling into an extremely difficult bitter smile, transmitting his voice through the mental link. "Looks like I can't repay my debt to you."
+"Cough..." Lin Yi looked at her, his lips pulling into an extremely difficult bitter smile, transmitting his voice through the mental link. "Looks like you still can't repay the debt."
 
 In this dying tranquility, they didn't cry, didn't pray, and had no great enlightenment or repentance.
 
 Su Liang looked at him, those originally cool eyes now carrying intense unwillingness and fierceness.
 
-"Principal 300 points, plus 50% compound interest for one instance..." Su Liang responded through gritted teeth in her mind. "Lin Yi, you owe me exactly 450 points."
+"Principal 300 points, plus 50% compound interest for one instance..." Su Liang responded through gritted teeth in her mind. "Lin Yi, I owe you exactly 450 points."
 
 Her gaze passed over Lin Yi's shoulder, as if seeing a scene from long ago.
 

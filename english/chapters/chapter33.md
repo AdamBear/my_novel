@@ -27,7 +27,7 @@ He was enjoying this pain.
 This wasn't masochistic psychology, but feedback from that dormant code in his body. Under intense pain stimulation, he could clearly feel that burning sensation deep in his spine awakening.
 
 **[Extreme physiological stress detected...]**
-**[Gene [Nirvana] activity increasing... 13%... 14%...]**
+**[Gene [Nirvana] activity increasing... 26%... 27%...]**
 
 Each pulse of pain was like a high-concentration adrenaline shot, forcibly boosting his consciousness on the verge of collapse.
 
@@ -201,6 +201,6 @@ Lin Yi raised the black fragment in his hand, pointing directly at that so-calle
 
 【Mental Value: 85/100】(Extremely firm after seeing the truth)
 
-【Gene [Nirvana] Unlock Rate: 15%】(Pain stimulation and ideological conflict catalyzing gene awakening)
+【Gene [Nirvana] Unlock Rate: 28%】(Pain stimulation and ideological conflict catalyzing gene awakening)
 
 【Current Mission】: Destroy mainframe "Father".

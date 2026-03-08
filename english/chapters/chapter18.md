@@ -120,11 +120,11 @@ He just coldly looked at this woman before him preparing to bandage him.
 
 "Su Liang."
 
-Lin Yi suddenly spoke, his voice flat, emotionless. "How much money do I owe you?"
+Lin Yi suddenly spoke, his voice flat, emotionless. "That account, how much money do you owe me?"
 
-"What?" Su Liang froze, seeming not to react.
+"What?" Su Liang froze.
 
-"I signed a contract with you at the transit station." Lin Yi stared into her eyes. "How many points do I owe you?"
+"I forced you to sign a contract at the transit station." Lin Yi stared into her eyes. "How many points do you owe me?"
 
 Su Liang's expression stiffened for an instant, but then returned to natural. She sighed, smiling somewhat helplessly:
 
@@ -158,13 +158,7 @@ Fast, accurate, ruthless. Straight for the carotid artery.
 
 Lin Yi pulled out the fragment, bringing out a stream of black, motor oil-like viscous liquid.
 
-"The real Su Liang is an extremely selfish miser."
-
-Lin Yi looked coldly at this False Person before him, now convulsing and deforming, his tone carrying a trace of mockery. "If you were really her, you'd say: 'Cut the crap, 450 points with interest, short me a penny and I'll cripple your other hand too.'"
-
-"You monsters can learn human expressions, can learn human language."
-
-"But you'll never learn the greed and harshness in humanity's bones."
+He looked coldly at this False Person before him, now convulsing and deforming, his tone carrying a trace of mockery. "The real Su Liang, deep down, hates owing people loan shark debts the most. If you were really her, you'd say through gritted teeth: 'Cut the crap, 450 points with interest, I'll eventually smash it back in your face with principal and interest, don't think you can use this rotten debt to control me.' You monsters... will never learn that human obsession and pettiness when facing debts."
 
 That "Su Liang" clutched her neck, the expression on her face beginning to collapse. That concern and gentleness disappeared, replaced by a featureless, mirror-smooth face.
 

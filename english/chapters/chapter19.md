@@ -8,23 +8,15 @@ The mirror shard in Lin Yi's hand was covered with black viscous liquid, its tip
 
 "Answer me."
 
-Lin Yi's voice was cold as ice, devoid of any emotional fluctuation. "About that debt—how much do I owe you?"
+Lin Yi's voice was cold as ice, devoid of any emotional fluctuation. "About that debt—how much do you owe me?"
 
 The Su Liang across from him stopped in her tracks.
 
 She first cast an extremely disgusted glance at the pool of black water on the ground, then her gaze moved up to Lin Yi's still-bleeding right arm. Her brow furrowed, not out of concern, but from the annoyance of having some calculation disrupted.
 
-"Three hundred principal."
+"Three hundred principal. The 'asset repair fee' you forced on me at the transit station. According to your black-hearted contract, compound interest increases by 50% after each dungeon... the current total with principal and interest is 450 points. Lin Yi, if you dare die here and make me carry this loan shark debt into the grave, I won't let you go even as a ghost."
 
-She spoke coldly, her speech rapid, as if reciting a contract she had long memorized. "The 'asset repair fee' you used at the transit station. According to the contract, compound interest increases by 50% after each dungeon. We're now at the beginning of the third dungeon. Although it hasn't been settled yet, the interest has already started accumulating."
-
-She paused, a shrewd cold light flashing in her eyes—the kind of look that made Lin Yi feel extremely familiar. It was the gaze of a capitalist examining a non-performing asset.
-
-"Add in the killing intent you just had toward me, plus the investment risk caused by your half-dead state... the current total with principal and interest is 450 points. Lin Yi, if you dare die here, I'll immediately take your inheritance to fill this hole."
-
-Hearing these words, Lin Yi's tense shoulders finally relaxed.
-
-It was a sense of security that could only be experienced in this hell—security built on absolute self-interest.
+Hearing these words, Lin Yi's tense shoulders finally relaxed—a sense of security that could only be experienced in this hell.
 
 He threw away the mirror shard in his hand and let out a long breath, leaning against the cold ventilation duct.
 

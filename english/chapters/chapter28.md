@@ -95,8 +95,8 @@ Until one day, he could personally smash that glass dome and drag these lofty "O
 "Settlement rewards." Lin Yi said coldly.
 【Gene [Nirvana] Unlock Rate increased to: 25%】
 【New Trait Acquired: Pain Blocking (Active)】—You can actively sever neural pain transmission, duration 5 minutes. Side effect: After ending, pain will return doubled.
-【Item Acquired: Ark Pass (Damaged)】—The car key that crashed into the gate.
-Lin Yi looked at the small piece of twisted metal in his hand—a fragment that had flown off when the locomotive crashed into Ark's gate.
+【Item Acquired: Fragment of Reality (Physical Fragment)】.
+Lin Yi looked at the small piece of twisted metal in his hand—a metal fragment that had flown off when the locomotive crashed into Ark's gate.
 "Break the dome, huh..."
 Lin Yi gripped the fragment tightly, its sharp edge piercing his palm, but he didn't frown.
 "Su Liang." He turned to look at the woman beside him who had just finished repairs and was rubbing her temples.
